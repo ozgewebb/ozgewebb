@@ -1,6 +1,6 @@
 Hi, I’m Ozge👋
 
-I love coding, reading, dancing, traveling🙂
+I love coding, reading, dancing, and traveling🙂
 
 Glad to see you here!😊
 <!---
