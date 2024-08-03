@@ -1,4 +1,4 @@
-Hi, I’m Ozge👋
+Hi, I’m Ozge Jess!👋
 
 I love coding, reading, dancing, and traveling🙂
 
